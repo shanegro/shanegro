@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shanegro
-- 👀 I’m interested in tech and efficiency
+- 👀 I’m interested in tech, travel, and gaming
 - 🌱 I’m currently learning all things coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me shaneghaus@outlook.com
